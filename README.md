@@ -27,6 +27,9 @@
 <img width="900" height="6" alt="tumblr_1086d4f5fd2d2677d2fc9dfa78a72868_62025fe3_400" src="https://github.com/user-attachments/assets/9018fe1b-4e24-4891-abe1-a2a1be6194af" />
 
 
+　　　　　　　　　　　　　　　　　　　　　　　[Girl Next Door](https://github.com/user-attachments/files/34557489/Girl.Next.Door.mp3)
+
+
 
 　　　　　　　　　　　　　　　　　　　　　　　　 𓎢𓎟𓎡　　﹒　　other𓈒
 
