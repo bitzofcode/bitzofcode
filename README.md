@@ -27,7 +27,7 @@
 <img width="900" height="6" alt="tumblr_1086d4f5fd2d2677d2fc9dfa78a72868_62025fe3_400" src="https://github.com/user-attachments/assets/9018fe1b-4e24-4891-abe1-a2a1be6194af" />
 
 
-　　　　　　　　　　　　　　　　　　　　　　　[*Girl Next Door!*](https://open.spotify.com/intl-es/artist/7M5pDtJpCdnftEQZtczYco?si=58b8a0642f6a408e)
+　　　　　　　　　　　　　　　　　　　　　　　[*Girl Next Door!*](https://open.spotify.com/intl-es/track/7laGYsMXIENpMIRFHLZeIo?si=eb2ca270dac04278)
 
 
 
