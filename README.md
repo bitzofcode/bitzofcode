@@ -1,4 +1,6 @@
 <img width="400" height="30" alt="tumblr_a55dcb0daff485a27077247c25dad61c_619192df_400" src="https://github.com/user-attachments/assets/11c19556-f68f-4295-9ce1-760583cb9c91" />
+<img width="1500" height="500" alt="1000076922" src="https://github.com/user-attachments/assets/43af48c7-19e5-4ef3-8e73-f5a61aad3456" />
+
 
 
 
@@ -31,3 +33,9 @@
 　　　 𓎢𓎟𓎡　　﹒　　other𓈒
 
 　　◟　　<img width="23" height="25" alt="tumblr_7098efef90de8561e883b4332c34a282_5bcf3f5c_100" src="https://github.com/user-attachments/assets/2ae336d6-9601-4fb2-bf54-8918380d4989"/> ⁺　　[atabook](https://ninesfolder.atabook.org/),　[tumblr](https://www.tumblr.com/bitzofcode),　[roblox](https://www.roblox.com/users/1261507224/profile)
+
+
+<img width="59" height="31" alt="1000018241" src="https://github.com/user-attachments/assets/74236827-efc1-453c-9d00-12629d11c036" />
+<img width="59" height="31" alt="1000076923" src="https://github.com/user-attachments/assets/193647e7-ee56-4804-934c-afae4150f15d" />
+<img width="59" height="31" alt="1000076926" src="https://github.com/user-attachments/assets/5dc51a09-17f8-4e0a-80dd-abbc26a1e816" />
+
